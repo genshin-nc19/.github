@@ -1,4 +1,4 @@
-
+# Genshin scripts buy 2026. Our best Genshin scripts are fully tested and ready for use.
 
 
 
